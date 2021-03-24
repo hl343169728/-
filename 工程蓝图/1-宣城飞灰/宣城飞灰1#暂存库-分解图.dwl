@@ -1,3 +1,0 @@
-Administrator
-SKY-20180314QZF 
-2000-02-23  16:35:44
